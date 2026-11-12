@@ -3,7 +3,9 @@ with Convio.dev MCP.
 
 These Repos are NOT Official Convio.dev Applications / Repos
 
-I am simply a Convio Employee utilizing our product to enhance others projects
+I was simply a Convio Employee utilizing our product to enhance others projects
+
+due to an ongoing dispute, I have left the company I own the rights to.
 
 Should you have issue with this, I would point to myself being the sole owner of the Convio Business Registrations and Trademarks.
 
