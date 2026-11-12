@@ -6,6 +6,10 @@ These Repos are NOT Official Convio.dev Applications / Repos
 I was simply a Convio Employee utilizing our product to enhance others projects
 
 due to an ongoing dispute, I have left the company I own the rights to.
+Should this dispute continue, I will exercise my rights under US Law to sue and shutdown 
+Convio. IF everything is dropped I will leave things as is.
+
+
 
 Should you have issue with this, I would point to myself being the sole owner of the Convio Business Registrations and Trademarks.
 
