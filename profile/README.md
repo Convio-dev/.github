@@ -1,6 +1,9 @@
 I would point to myself being the sole owner of the Convio Business Registrations and Trademarks.
 
-Convio + Convio.dev are registered Companies and Trademarks of Avernic NPO
+Convio + Convio.dev are registered Companies and Trademarks of 
+- Avernic NPO
+- AvernicAI 
+> which I sit as sole Director / President / CEO of both
 
 # Interested in purchasing the Business License / Registrations / Trademarks? 
 # send inquiries to legal@avernic.com
